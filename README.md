@@ -1,1 +1,1 @@
-The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
+The Ford Super Deluxe, introduced in 1941 but produced into the post-war era, featured updated styling and amenities, making it a popular choice among American consumers.
