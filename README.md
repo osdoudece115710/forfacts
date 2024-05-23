@@ -1,1 +1,1 @@
-The Ford Super Deluxe, introduced in 1941 but produced into the post-war era, featured updated styling and amenities, making it a popular choice among American consumers.
+Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
