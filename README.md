@@ -1,1 +1,1 @@
-Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
+The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
