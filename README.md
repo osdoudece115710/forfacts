@@ -1,1 +1,1 @@
-The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
+The Stanley Steamer, introduced in 1897, was a popular steam-powered car in the early 1900s, known for its quiet operation and smooth ride quality.
