@@ -1,1 +1,1 @@
-The Stanley Steamer, introduced in 1897, was a popular steam-powered car in the early 1900s, known for its quiet operation and smooth ride quality.
+The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
