@@ -1,1 +1,1 @@
-The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
