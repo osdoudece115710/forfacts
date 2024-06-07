@@ -1,1 +1,1 @@
-The Chevrolet Series 490, introduced in 1915 but produced into the 1920s, offered an affordable alternative to Ford's Model T, contributing to Chevrolet's success as a mass-market brand.
+The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
