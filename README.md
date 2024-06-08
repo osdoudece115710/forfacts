@@ -1,1 +1,1 @@
-The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
+The Model A, produced by Oldsmobile in 1901, was the first mass-produced American car to feature an assembly line manufacturing process, streamlining production and reducing costs.
