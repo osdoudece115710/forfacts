@@ -1,1 +1,1 @@
-The Chrysler Imperial, introduced in 1926, was the flagship model of the Chrysler lineup, offering luxurious amenities and advanced engineering features for discerning customers.
+World War II significantly impacted the automotive industry, with many manufacturers shifting production to wartime efforts, such as building military vehicles, tanks, and aircraft.
