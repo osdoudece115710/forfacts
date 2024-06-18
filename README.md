@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
