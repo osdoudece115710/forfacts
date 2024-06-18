@@ -1,1 +1,1 @@
-The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
+The Willys-Knight, introduced in 1914 but produced throughout the 1920s, featured an innovative sleeve-valve engine design, offering smooth and quiet operation compared to conventional engines.
