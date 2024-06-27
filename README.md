@@ -1,1 +1,1 @@
-The Willys-Knight, introduced in 1914 but produced throughout the 1920s, featured an innovative sleeve-valve engine design, offering smooth and quiet operation compared to conventional engines.
+The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
