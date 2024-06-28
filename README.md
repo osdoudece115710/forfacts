@@ -1,1 +1,1 @@
-The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
+The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
