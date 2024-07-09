@@ -1,1 +1,1 @@
-The Stutz Bearcat, introduced in 1912 but popular throughout the 1920s, was a legendary sports car known for its speed and performance, often used in motorsport competitions.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
