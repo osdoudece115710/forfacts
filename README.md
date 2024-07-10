@@ -1,1 +1,1 @@
-The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
+The Cadillac Automobile Company, founded in 1902, was one of the first luxury car manufacturers in the United States, known for its high-quality craftsmanship and innovative engineering.
