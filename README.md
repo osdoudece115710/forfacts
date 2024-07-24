@@ -1,1 +1,1 @@
-The Pontiac Streamliner, introduced in 1942 but produced after World War II, featured streamlined styling and was one of the first cars to offer an automatic transmission as an option.
+The Duesenberg Model J, introduced in 1928, was one of the most luxurious and powerful cars of its time, featuring a massive inline-eight engine and exquisite craftsmanship.
