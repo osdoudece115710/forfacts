@@ -1,1 +1,1 @@
-The Willys-Knight, introduced in 1914 but produced throughout the 1920s, featured an innovative sleeve-valve engine design, offering smooth and quiet operation compared to conventional engines.
+The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
